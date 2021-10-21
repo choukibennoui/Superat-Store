@@ -1,2 +1,2 @@
-Superat Store
-Continental and non-continental retail distribution
+Eniem algérienne
+Commerce de gros d'appareille eléctronique et eléctroménager
