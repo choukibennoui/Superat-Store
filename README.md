@@ -1,2 +1,2 @@
-# Eniem algérienne
-Commerce de gros d'appareils électroniques et électroménager
+Superat Store
+Continental and non-continental retail distribution
