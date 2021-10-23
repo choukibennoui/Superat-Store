@@ -1,2 +1,2 @@
-Eniem algérienne
-Commerce de gros d'appareille eléctronique et eléctroménager
+Superat Store
+Maghaza - sub-continental and non-continental distribution
